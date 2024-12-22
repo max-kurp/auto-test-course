@@ -1,1 +1,1 @@
-# auto-test-course
+Прохожу курс!!!
